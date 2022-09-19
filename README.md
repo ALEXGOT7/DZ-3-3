@@ -1,4 +1,4 @@
 # Немного о себе
 Чемпион мира по поеданию хот догов
 # Фото
-![](https://www.google.com/imgres?imgurl=https%3A%2F%2Ficdn.lenta.ru%2Fimages%2F2021%2F07%2F04%2F22%2F20210704220247602%2Fsquare_320_2fab43ef2413a5b18c5a728f1a3aebac.jpg&imgrefurl=https%3A%2F%2Flenta.ru%2Fnews%2F2021%2F07%2F04%2Fvot_eto_appetit%2F&tbnid=TEVigAVGVOR-ZM&vet=12ahUKEwiXuarFyaD6AhWrtYsKHauGDfoQMygFegUIARCnAQ..i&docid=2B0tW5yGZX8NvM&w=320&h=320&q=%D1%87%D0%B5%D0%BC%D0%BF%D0%B8%D0%BE%D0%BD%20%D0%BC%D0%B8%D1%80%D0%B0%20%D0%BF%D0%BE%20%D0%BF%D0%BE%D0%B5%D0%B4%D0%B0%D0%BD%D0%B8%D1%8E%20%D1%85%D0%BE%D1%82%20%D0%B4%D0%BE%D0%B3%D0%BE%D0%B2&ved=2ahUKEwiXuarFyaD6AhWrtYsKHauGDfoQMygFegUIARCnAQ)
+![2022-09-19_12-28](https://user-images.githubusercontent.com/103954512/190993575-c6ba79cc-5580-400d-a915-232247ab250f.png)
